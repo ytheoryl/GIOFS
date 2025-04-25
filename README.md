@@ -1,1 +1,1 @@
-# github_is_only_for_study
+# github_is_only_for_s
